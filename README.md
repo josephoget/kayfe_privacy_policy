@@ -1,0 +1,2 @@
+# kayfe_privacy_policy
+kayfe_privacy_policy
